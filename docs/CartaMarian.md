@@ -117,11 +117,15 @@ convencerse de que aquello estaba ahora sí definitivamente muerto, sin retorno.
 Y hasta vivirlo, comprendi el pasaje del rey David. Él había llorado y orado
 por la sanidad de su hijo, pero cuando murió al fin, se ungió, cambio las ropas
 y pidió de comer. Sus siervos sorprendidos le preguntaron que cómo era esto,
-cómo era posible que ahora estuviera tranquilo. Él respondió: "Cuando el niño
-estaba vivo, ayuné y lloré porque pensé: ¿Quién sabe? Tal vez el SEÑOR se
-compadezca de mí y deje vivir al niño. Pero ahora el niño murió. ¿Para qué
-ayunar? ¿Puedo acaso devolverle la vida? Algún día iré adonde él está, pero él
-no puede volver a mí." He ido comprendiendo poco a poco lo que es el soltar.
+cómo era posible que ahora estuviera tranquilo. Él respondió:
+
+> Cuando el niño estaba vivo, ayuné y lloré porque pensé: ¿Quién sabe? Tal vez
+> el SEÑOR se compadezca de mí y deje vivir al niño. Pero ahora el niño murió.
+> ¿Para qué ayunar? ¿Puedo acaso devolverle la vida? Algún día iré adonde él
+> está, pero él no puede volver a mí. 
+> -- [2 Samuel 12:16](https://www.bible.com/es/bible/128/2SA.12.16-24.NVI)
+
+He ido comprendiendo poco a poco lo que es el soltar.
 Este olvido, desconexión con un segmento de nuestras memorias es lo que permite
 sanar al resto. La ilusión por esa persona no volverá. Si hubiera querido
 seguir "siendo yo" esto es, mantener la unidad entre los anhelos del pasado, el
