@@ -7,7 +7,7 @@ tus sentidos estarán nublados. O bien, ver, tocar, sentir un puente pero por
 dentro tendrás la ineludible duda de que éstos te engañan. Ninguna de las dos,
 cambiara el hecho de que el puente puede o no existir. Y ... tienes que cruzar.
 
-Tomar la decisión de ir a ese intercambio aun que en el transe familiares o
+Tomar la decisión de ir a ese intercambio aun que en el interin familiares o
 conocidos insistan que es una mala idea. Los que parecen tenerlo todo (carrera,
 dinero, amigos) pero con todo sienten que algo les falta. El científico pionero
 que todos sus colegas tildan de loco. O al religioso, cuyos familiares,
